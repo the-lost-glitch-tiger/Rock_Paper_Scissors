@@ -1,0 +1,1 @@
+Lihtne Kivi, paber, käärid cli mäng
